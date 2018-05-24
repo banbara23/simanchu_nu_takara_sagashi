@@ -1,0 +1,1 @@
+# simanchu_nu_takara_sagashi
